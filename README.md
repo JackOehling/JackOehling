@@ -1,2 +1,2 @@
-Hi, I’m @JackOehling🙂
+Hi, I’m Jack
 
